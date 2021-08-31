@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Shafu11
-- 👀 I’m interested in ... NDT Art
+- 👀 I’m interested in ... NFT Art
 - 🌱 I’m currently learning ...NFT and Crypto
 - 💞️ I’m looking to collaborate on ...NFT 
 - 📫 How to reach me ...
